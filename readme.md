@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KikoLtm01
+- 👀 I’m interested in WebDelopment and AppDevelopment(Still learning).
+- 🌱 I’m currently learning WebDevelopment.
+- 📫 You can Reach me by Email(a8794@oficina.pt) or Discord(ッkiko#1212).
